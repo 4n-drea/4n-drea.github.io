@@ -14,12 +14,18 @@ Ay *nahulog*, ay na *fall*, ay **walang** *sumalo*
 
 ## Sosad 😢
 
+
+
 ### Sabi nila mahirap daw humanap ng loyal
 
 ### Sabagay minsan lang ako lumabas 😇
 
 
+
 # Umay Things
+
+
+
 
 THIS!
 
