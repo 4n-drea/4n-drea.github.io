@@ -1,7 +1,5 @@
-# Hi
-Andrea S. Babasanta
-
-**Arat magmuni-muni**
+# Hi Arat magmuni-muni
+4n-drea S. Babasanta
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/7H9ntovYj7r9sKIVcWXFau?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
