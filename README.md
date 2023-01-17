@@ -13,6 +13,6 @@ Ay nahulog, ay na fall, ay walang sumalo
 
 Awts
 
-Sosad :sad:
+Sosad 😢
 
 [:))](https://www.youtube.com/watch?v=dQw4w9WgXcQ) 
