@@ -1,7 +1,4 @@
-# 4n-drea.github.io
-Andrea S. Babasanta
-
-Hi
+# Hi
 
 Arat magmuni-muni 
 
