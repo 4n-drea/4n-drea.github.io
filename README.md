@@ -1,4 +1,5 @@
 # Hi
+Andrea S. Babasanta
 
 **Arat magmuni-muni**
 
@@ -6,8 +7,8 @@
 
 *Awts*
 
-Ay nahulog, ay na fall, ay walang sumalo
-
+Ay *nahulog*, ay na *fall*, ay **walang** *sumalo* 
+ 
 *Awts*
 
 Sosad 😢
@@ -16,20 +17,21 @@ Sosad 😢
 
 ### Sabagay minsan lang ako lumabas 😇
 
-# THIS!
+
+# Umay Things
+
+THIS!
 
 ![THIS](https://scontent.fmnl25-3.fna.fbcdn.net/v/t1.15752-9/324466434_1249727182638703_8200882232614628371_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=ae9488&_nc_ohc=0Upj2YUgpr4AX-Yc2hv&_nc_ht=scontent.fmnl25-3.fna&oh=03_AdSA-kDGb1-h5qQB0bxSy98z8zQFnvMu9KSSj3rv8GIzGg&oe=63ED7AED)
 
-HAHAHAHHAHA 
-
-Labyu
-
-![Labyu](https://scontent.fmnl25-5.fna.fbcdn.net/v/t1.15752-9/313888430_689395485736907_5184354662795142460_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=ae9488&_nc_ohc=LE80UrmSwd0AX_Q_gEF&_nc_ht=scontent.fmnl25-5.fna&oh=03_AdSyh_WXv7ecwD_LDpMW9-rKDp6hiJRxVyRVfpojzC6w-Q&oe=63ED756F)
-
-
-Naol
+HAHAHAHHAHA pala thumbsup ka men :tired_face::tired_face::pensive:
 
 ![Naol](https://scontent.fmnl25-4.fna.fbcdn.net/v/t1.15752-9/323113504_728048065261831_247426609623132628_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=ae9488&_nc_ohc=FA54RpGqVZQAX9VSQQB&_nc_ht=scontent.fmnl25-4.fna&oh=03_AdSutOedAiI4v61nU6jXTW7GC2rd32hHSovl2mW37U1RsA&oe=63ED7ADE)
+ 
+Naol
+ 
+# [:))](https://www.youtube.com/watch?v=dQw4w9WgXcQ) :point_right::point_left:
+ 
+![Labyu](https://scontent.fmnl25-5.fna.fbcdn.net/v/t1.15752-9/313888430_689395485736907_5184354662795142460_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=ae9488&_nc_ohc=LE80UrmSwd0AX_Q_gEF&_nc_ht=scontent.fmnl25-5.fna&oh=03_AdSyh_WXv7ecwD_LDpMW9-rKDp6hiJRxVyRVfpojzC6w-Q&oe=63ED756F)
 
-[:((](https://www.youtube.com/watch?v=dQw4w9WgXcQ) 
-
+Labyu
