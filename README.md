@@ -1,5 +1,4 @@
 # Hi 
-4n-drea S. Babasanta
 
 ## Arat magmuni-muni
 
